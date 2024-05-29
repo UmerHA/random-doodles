@@ -1,1 +1,1 @@
-Random Doodle intended for sharing or just storing somewhere.
+Random code doodles intended for sharing or just storing somewhere.
